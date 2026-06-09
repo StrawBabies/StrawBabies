@@ -6,9 +6,3 @@
 </p>
 
 <br/>
-
-<p align="center">
-  ☾ soft soul with a quiet heart ♡ <br/>
-  i enjoy calm vibes and soft moments ☁️ <br/>
-  feel free to interact if you're comfy ✧
-</p>
